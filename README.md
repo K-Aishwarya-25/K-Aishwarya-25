@@ -1,6 +1,4 @@
-### Hi there 👋
-
-It's aishwarya here.
+### Hi there 👋 It's aishwarya here.
 
 Who am I:
 
